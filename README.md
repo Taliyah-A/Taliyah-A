@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on webssites, games, apps, e.t.c.
 - 📫 How to reach me 
 - 😄 Pronouns: She/her
-- ⚡ Fun fact: I am Christian but my name is Islamic
+- ⚡ Fun fact: My name is Arabic for "Dew of God" 😄
 
 <!---
 Taliyah-A/Taliyah-A is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
